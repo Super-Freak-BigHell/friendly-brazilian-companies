@@ -9,4 +9,3 @@ Name | Website
 Psy News | https://psychedelic.com.br/
 Agideia | https://agideia.com.br/
 Além da Fome | https://alemdafome.com.br/
-Club 24 | https://club24.com.br/
